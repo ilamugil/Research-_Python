@@ -76,5 +76,5 @@ To analyze how work-life balance factors such as dependent care, mental stress, 
 
 **Ilamugil K**
 MBA — Business Analytics | Crescent School of Business, Chennai
-📧 ilamugilk15@gmail.com
+ ilamugilk15@gmail.com
 🔗 [LinkedIn](https://www.linkedin.com/in/ilamugil-kaliyaperuma)
